@@ -1,4 +1,5 @@
 > NEEDS TO BE EDITED
+> MICHELLE WAS HERE!!
 
 # Lesson 3 Project
 This project will assess your knowledge and skills using the various concepts taught within the lesson. 
